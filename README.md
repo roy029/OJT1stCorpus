@@ -1,2 +1,2 @@
-# OJT1st_Corpus
+# OJT1stCorpus
 こちらに再度お願いします
